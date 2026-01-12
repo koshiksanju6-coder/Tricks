@@ -1,0 +1,2 @@
+# Tricks
+IT IS PROJECT 
